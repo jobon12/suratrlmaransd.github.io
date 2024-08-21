@@ -4,7 +4,7 @@ Tentu saja hal ini membuat angka pengangguran dan pencarian kerja semakin tinggi
 
 Seperti industri e-commerce, telekomunikasi dan farmasi. Sebagai pencari kerja, Anda harus bisa menulis surat lamaran yang menarik dan melamar pada industri yang tentunya sesuai dengan keahlian Anda. Selain itu, Anda juga harus pintar dalam menentukan waktu yang tepat untuk mengirimkan email lamaran kerja.
 
-Tips memilih waktu yang tepat untuk mengirim email lamaran kerja
+[Tips memilih waktu yang tepat untuk mengirim email lamaran kerja](https://contoh-surat-lamaran-pekerjaan.github.io/)
 
 Ingatlah bahwa tidak semua perekrut online dan membuka email kandidat selama 24 jam sehari, karena tentunya mereka memerlukan istirahat dan waktu untuk melakukan aktivitas lainnya. Oleh karena itu, Anda harus bisa memilih waktu yang tepat untuk mengirimkan email lamaran kerja. Berikut beberapa tips yang bisa Anda coba.
 
